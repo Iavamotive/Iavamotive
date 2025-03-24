@@ -1,4 +1,4 @@
-if you wanna be oomfs #hmu. #lmk. #idontbite. check rentry byi tho thanks
+was @/lavamotives.. dont 4get me...
 
 
 ![profileviews](https://komarev.com/ghpvc/?username=lavamotives&color=green)
